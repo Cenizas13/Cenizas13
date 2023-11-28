@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Cenizas13
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning 1st of DAW in SPAIN
